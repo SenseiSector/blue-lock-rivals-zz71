@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with blue lock rivals custom Scripts, the #1 Script. Includes private server access and invisibility
 
 
 
